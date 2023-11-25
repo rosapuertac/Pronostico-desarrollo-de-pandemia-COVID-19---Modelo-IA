@@ -1,0 +1,1 @@
+# Pronostico-desarrollo-de-pandemia-COVID-19---Modelo-IA
